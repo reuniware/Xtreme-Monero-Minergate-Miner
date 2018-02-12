@@ -8,3 +8,16 @@ Launch setup.exe
 
 On the application, enter your Minergate email address and click on Start Miners
 
+
+More info by email : 
+
+investdatasystems@yahoo.com
+
+Website :
+
+https://ichimoku-expert.blogspot.com
+
+Forum :
+
+http://investdata.byethost6.com/smf
+
